@@ -1,6 +1,6 @@
 Greetings!
 
-Welcome to my corner of the internt. One of my many corners in this world wide web.
+Welcome to my corner of the internet. One of my many corners in this world wide web.
 
 Who am I? Welllllll see that's kinda complicated. I do a lot: music, photography, curling... But none of that is exactly relevant here.
 My projects range from fun and quirky to stupid and complex. You'll find everything from failed experiments to work projects here. It's a truly unfortunate mix.
